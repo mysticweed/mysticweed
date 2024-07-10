@@ -20,4 +20,4 @@ zoophiles,homophobic,transphobic,weirdos (nsfw freaks), basic dni, minors, anti 
 
 <img src="https://64.media.tumblr.com/c678a449efadbc444dbd8726ae9e99fc/008259af8f9c76ed-e5/s2048x3072/b03323059ab675876799120b38ff4c4245248562.pnj">
 
-lapfox trax/halleylabs listeners, monster hunter world players, ponytown players, therians, furries, furry artists or just artists in general, regretavtor players, breakcore listeners, alternative people, roblox players!!, mlp fans, murder drones fans, tadc fans (the amazing digital circus) // tadc fandom is pretty icky but yall r cool sometimes, (adding more //im in alot of fandoms i just barely remember)
+lapfox trax/halleylabs listeners, monster hunter world players, ponytown players, therians, furries, furry artists or just artists in general, regretavtor players, breakcore listeners, alternative people, roblox players!!, mlp fans, murder drones fans, tadc fans (the amazing digital circus) // tadc fandom is pretty icky but yall r cool sometimes, little big planet players/fans, mask makers (fursuit makers)!! i love yall, so creative:)), [ADDING MOREE!!]
